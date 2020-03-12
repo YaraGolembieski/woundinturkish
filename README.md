@@ -1,2 +1,2 @@
 # woundinturkish
-i im not here because i wan to 
+i im not here because i want to 
